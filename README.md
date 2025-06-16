@@ -10,7 +10,7 @@
 🌏 Melbourne, Australia  
 🎓 Master of Information Technology @ RMIT  
 💻 Previously @ Hexaware Technologies (2+ years experience)  
-🌐 [LinkedIn](https://www.linkedin.com/in/nandakishorsarath1100) | [GitHub](https://github.com/MrPerfect11) | ✉️ nandakishorsarath@gmail.com
+🌐 [LinkedIn](https://www.linkedin.com/in/nandakishorsarath) | [GitHub](https://github.com/MrPerfect11) | ✉️ nandakishorsarath@gmail.com
 
 ---
 
